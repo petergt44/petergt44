@@ -97,7 +97,6 @@ I excel in **fully remote, async teams** and have 10+ years collaborating with U
 
 - 📧 **Email**: gakungu.peter@gmail.com
 - 💼 **LinkedIn**: [linkedin.com/in/gakungupeter](https://www.linkedin.com/in/gakungupeter)
-- 🐦 **Twitter/X**: [@petergt44](https://twitter.com/petergt44) (if you have one)
 
 Open to **remote senior/lead roles**, **consulting**, and **high-impact contracts**.
 
